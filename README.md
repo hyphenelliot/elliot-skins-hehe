@@ -1,3 +1,9 @@
 # gmoose-skins-hehe
 still in progress.
-all skins that i use (2022-2024)
+almost all skins that i use (2022-2024)
+
+Wakson
+waksondark
+sameskin
+azer-ite
+- #momomofuries -
