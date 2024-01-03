@@ -1,4 +1,4 @@
-# elliot-skins-hehe
+# elliot's-osu-skins
  still in progress.
 . almost every skin that i mainly use (2022-202X)
 
