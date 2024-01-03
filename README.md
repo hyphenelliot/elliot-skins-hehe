@@ -1,6 +1,6 @@
 # elliot-skins-hehe
  still in progress.
-. almost all skins that i use (2022-202X)
+. almost every main skin that i use (2022-202X)
 
 # [Wakson](https://drive.google.com/file/d/1vj0cx9ExL0vT-WEE9qTXgLcpGQ4_bXEd/view?usp=drive_link)
 ![screenshot053.jpeg](https://tinypic.host/images/2024/01/02/screenshot053.jpeg)
